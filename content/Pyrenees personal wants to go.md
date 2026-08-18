@@ -37,7 +37,7 @@ Lots of options around **Valle de Tena**!
 
 ## Hiking
 
-A nice easy circuit near **Taull** (see ):
+A nice easy circuit near **Taull** (see Eglesia de Sant Climent de Taull):
 - Senders de la Ribera de Sant Martí https://maps.app.goo.gl/tf8pr84YGg2wHCUo7
 	- This circuit has a nice ending in a beautiful lake: 
 	  Estany Gran del Pessó https://maps.app.goo.gl/Lnj8yh3UMg1DeQRV7
@@ -56,27 +56,26 @@ A nice easy circuit near **Taull** (see ):
 - **Status:** dates widely published for 2026 but **line-up still TENTATIVE** — verify before locking travel.
 
 
-Other options:
+### Other music options
 
-<details> 
-<summary>Festa Major de La Seu d’Urgell (incl. Ball Cerdà)</summary> 
+#### Festa Major de La Seu d’Urgell (incl. Ball Cerdà)
+
 A bit far from other areas.
 - **When:** **28 Aug – 1 Sep 2026** (closing acts spill to **2 Sep**).  
 - **Where:** La Seu d’Urgell (Alt Urgell) — Plaça Patalín, Espai Casetes, etc. **In-person.**  
 - **Folk highlight:** **Ball Cerdà** — **Sun 30 Aug 2026, ~11:00**, Plaça Patalín (Element of National Festive Heritage; 100+ couples in traditional dress, cobla). Also gegants, sardanes, evening orquestas/coblas (Maravella, Principal de la Bisbal, etc.) plus bigger pop concerts (Els Catarres 29 Aug, The Tyets 31 Aug).  
 - **Why it fits:** natural overnight if driving between **Huesca/Graus** and **Vall de Boí / Taüll** (N-260 corridor).  
 - **Programme:** [fmlaseu.cat](https://www.fmlaseu.cat) · Ball Cerdà listing: [caminapirineus.com](https://www.caminapirineus.com/es/informacion-de-interes/agenda/ball-cerda).  
-</details>
 
 
-### Era Hèsta de Vielha (Val d’Aran)
+#### Era Hèsta de Vielha (Val d’Aran)
 - **When:** **5–11 Sep 2026** (overlaps your window **5–8 Sep**; rest continues after).
 - **Where:** Vielha historic centre. **In-person.**
 - **What:** main Aranese summer festa — traditional **esquerrana** dances, evening concerts, artisan market, olla aranesa popular meals. Occitan/Aranese identity, not “festival folk” in the EMTP sense, but living mountain tradition.
 - **Why it fits:** one valley over from **Boí / Taüll / Aigüestortes** (tunnel / N-230).
 - **Programme:** usually late Aug on [visitvaldaran.com](https://www.visitvaldaran.com) · overview: [festivalesdeespana](https://www.festivalesdeespana.com/en/festival/era-hesta-de-vielha-vielha).
 
-### Festa Major de Durro (Vall de Boí)
+#### Festa Major de Durro (Vall de Boí)
 - **When:** **8–13 Sep 2026** (your window catches **Tue 8 Sep** opening: missa + vermut popular).
 - **Where:** Durro — same valley as Boí / Erill / Taüll on your wants list.
 - **Folk note:** traditional **Ball pla** is listed for **Sun 13 Sep** (just after your dates) with Ribatònics.
@@ -84,7 +83,7 @@ A bit far from other areas.
 
 
 
-### Music stuff just outside the dates window (useful if dates flex)
+#### Music stuff just outside the dates window (useful if dates flex)
 
 
 | What | Dates 2026 | Notes |
