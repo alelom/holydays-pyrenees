@@ -1,0 +1,5 @@
+- **Galicia** (NW Spain): total improv, rent a car, maybe dip into Portugal.
+- **Pyrenees** via **Bayonne or Bilbao**: rent a car, mountains + a bit of Atlantic.
+- **Dates:** thinking of the **UK bank-holiday weekend (Mon 31 Aug 2026)**; up to **~5 days off** (saving leave for other trips); could leave **Thu/Fri** to save on flights. She's **leaning early September, not late** Sept. For Greece she priced **Sat 29 Aug – 5 Sep ≈ €200** return (3h50 from Barcelona).
+- **Travel style:** relaxed exploring, **rent a car and get lost**, some walking, "needs contact with water but not only". Flexible on sleep (Airbnb/hostel, occasional camping but fears the cold).
+- **Logistics notes:** she drives; open to train/BlaBlaCar. Has a friend in **La Rioja** (wine, early Sept 🍷) and knows a couple of Pyrenees spots. 
